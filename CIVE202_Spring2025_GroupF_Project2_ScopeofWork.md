@@ -1,6 +1,6 @@
 **Scope of Work**
 
-**Assigned Technician:** Mallory Williams, Khadijath Diaby, and John Boes
+**Assigned Technicians:** Mallory Williams, Khadijath Diaby, and John Boes
 
 **Date submitted for review:** March 4th, 2025
 
